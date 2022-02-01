@@ -1,4 +1,4 @@
-Phototropism is when a plant grows in response to light
+Phototropism/Avadi on my mind
 
 Avadi -- I learnt recently might have been an b/acronym for Armoured Vehicles and Ammunition Depot of India -- is where my grandparents lived.
 The avadi of my mind wasnt home to the Heavy Vehicle Factory or the Automobile industry but to rice fields and ducks, endless coconut water 
@@ -23,4 +23,3 @@ It has been over fifteen years since I have gone to see that tree.
 My mother says it still exists. But not for much longer. 
 But my parents are in the process of selling this house. 
 My grandma lives with us now - she is frail and cannot move too much. I wonder if she thinks about the tree. 
-
